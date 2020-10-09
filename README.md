@@ -11,4 +11,4 @@ gfhgf
 | Email     | lienbrun2@studentarteveldehs.be |
 
 **GRADUAAT PROGRAMMEREN ARTEVELDEHOGESCHOOL**
-We :heart: **Programming** :thumbsup: **Graphics** make **Cool** :poop:
+We :heart: **Programming** :thumbsup: **Graphics** make **Cool** :poop:fgfgfgf
